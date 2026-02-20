@@ -111,4 +111,4 @@ This document has been prepared solely for informational purposes and does not c
 
 ---
 
-*© 2025 Elite Oracle. All rights reserved. · The Future of Web3 is Autonomous*
+*© 2026 Elite Oracle. All rights reserved. · The Future of Web3 is Autonomous*
